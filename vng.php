@@ -1,0 +1,1 @@
+https://cdn.discordapp.com/attachments/1240348240788979796/1254484033132560457/Silent_VNG_protected.dll?ex=6679a8cc&is=6678574c&hm=6678f8e96f2dc0ebf140497bcf7278c195e5eeb4dcdccd9823213bcb4df2cb86&

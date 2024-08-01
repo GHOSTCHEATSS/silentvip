@@ -1,1 +1,0 @@
-https://cdn.discordapp.com/attachments/1240348240788979796/1268247559176982589/Silent_protected.dll?ex=66abbb15&is=66aa6995&hm=aa94d03e4c6b592c2a7a42a183a49529197e59ab6026e14fb5ddd64ec2554192&
